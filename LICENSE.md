@@ -1,4 +1,4 @@
-#  
+#  vip Scripts for sailor piece offers the most advanced sailor piece Script, with instant win and no clip. Perfect for dominating any match.
 
 
 
